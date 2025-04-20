@@ -11,4 +11,6 @@ These files are large and may take awhile to download depending on your internet
 
 
 
-Download [Dolly Test]([https://pages.github.com/](https://www.amazon.com/photos/shared/1psgtzJzSAiZ2uhxaDEOaw.kFUSy8ztsunf79Y3YRwlka).
+Download [Dolly Test](https://www.amazon.com/photos/shared/1psgtzJzSAiZ2uhxaDEOaw.kFUSy8ztsunf79Y3YRwlka).
+
+This site was built using [GitHub Pages](https://pages.github.com/).

@@ -5,7 +5,7 @@ This site contains links to download video files of our recent CCCS Drama record
 
 
 
-![howtodownload](https://github.com/user-attachments/assets/30a1050f-bd50-42c4-9b7c-6024b27f369c)
+![howtodownload](https://raw.githubusercontent.com/blueblazer22x/blueblazer22x.github.io/refs/heads/main/howtodownload2.jpg)
 
 
 

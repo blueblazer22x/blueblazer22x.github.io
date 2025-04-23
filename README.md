@@ -17,3 +17,5 @@ Download 10.2 GB [Dolly Test](https://www.amazon.com/photos/shared/1psgtzJzSAiZ2
 
 These files are large and may take awhile to download depending on your internet speed. Once downloaded, the video files can be played on a Windows PC using the Media Player app, or you can use most other media players on your phone or computer regardless of operating system.
 
+We will leave these links up for a few months to give everyone a chance to download the shows.  Alternatively, you may provide Mrs. Cunningham with an empty USB flash drive at least 64GB or larger and we can copy the files to your drive.
+

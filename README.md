@@ -26,5 +26,3 @@ We will leave these links up for a few months to give everyone a chance to downl
 
 
 
-For a sneak preview of next year's play [CLICK HERE](https://youtu.be/dQw4w9WgXcQ?si=ChbKZ2xgVPBms6r6)
-

@@ -1,6 +1,17 @@
 # CCCS Drama Recordings
 
-UPDATE: As of August 13, 2025 these links are no longer active. If you'd like a copy of the shows please provide Mrs. Cunningham with a flash drive. Thank you. 
+
+
+<sup>UPDATE: As of August 13, 2025 these links are no longer active. If you'd like a copy of the shows please provide Mrs. Cunningham with a flash drive. Thank you.</sup>
+
+
+
+
+-----------------------------------------------------
+
+
+
+
 
 
 This site contains links to download video files of our recent CCCS Drama recordings. After clicking the link of the show you'd like to download, you will be redirected to an Amazon Photos page like the one in the example below. Click on the 3-dot menu in the upper right part of that page, then click "Download to device". (NOTE: Due to their large size, these files will not play in your web browser, they must be downloaded as seen below)

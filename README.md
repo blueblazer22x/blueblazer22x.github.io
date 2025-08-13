@@ -2,7 +2,7 @@
 
 
 
-#UPDATE: As of August 13, 2025 these links are no longer active. If you'd like a copy of the shows please provide Mrs. Cunningham with a flash drive. Thank you.
+# As of August 13, 2025, these links are no longer active.  If you'd like a copy of the shows please provide a flash drive to Mrs. Cunningham.  Thank you.
 
 
 
